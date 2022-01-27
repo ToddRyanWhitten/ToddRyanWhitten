@@ -1,4 +1,4 @@
-I don't know karate, but I know crazy
+Some of my favorite people are dogs.
 
 <!---
 ToddRyanWhitten/ToddRyanWhitten is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
